@@ -17,3 +17,13 @@ ClickBank pays you 75.0% when you sell PUREREIK's product. To refer a customer s
 Become A Certified Usui Reiki Healing Master With The Latest Reiki Certification Program. Sales Funnel With 2 Amazing
 Upsells (more Than Other Reiki Programs). Related: Energy Healing, Psychic, Chakras. Aff Tools At Jv.successvantage.com
 Affiliate link: http://af3d9ezg4mb-eu0o0eqlp6smch.hop.clickbank.net/
+
+
+### Free Chakra Healing Pendant
+
+Give Away This Beautifully Adorned Chakra Healing Pendant And Make Killer Money Doing So. This Is A High Quality Piece
+Of Jewellery, With A Full Upsell/downsell Funnel. Will Convert On A Variety Of Audiences.
+Esp Female Affiliates Http://bit.ly/chjaffs
+Previous affiliate: http://bit.ly/2yEBm1x
+Affiliate link: http://cb826q3luuouakbam5mjngzu2a.hop.clickbank.net/
+
