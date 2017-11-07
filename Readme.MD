@@ -1,3 +1,8 @@
+# Original dns
+
+ ns1.streamlinedns.co.uk
+ ns2.streamlinedns.co.uk
+
 # Affiliates
 
 
